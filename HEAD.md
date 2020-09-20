@@ -1,11 +1,13 @@
-###### New Platfrom Link	:   www.relaxhub.ga
+#### Important Links
 
-###### Account Opening Guide	:   https://youtu.be/s_ow33ldQGg
+###### New Platfrom Link	:   <https://www.relaxhub.ga>
 
-###### Backup Platfrom Link	:   https://backup.relaxhub.ga
+###### Old Platfrom Link	:   <https://relaxhub.ml>
 
-###### Self Torrent Downloader	:   https://dl.relaxhub.ga (NEW)
+###### Backup Platfrom Link	:   <https://backup.relaxhub.ga>
 
-###### Old Platfrom Link	:   https://relaxhub.ml
+###### Account Opening Guide	:   <https://youtu.be/s_ow33ldQGg>
 
-###### For Drive Accecs	:   https://groups.google.com/g/relaxhub_movies
+#### Self Torrent Downloader	:   <https://dl.relaxhub.ga> (NEW)
+
+###### For Drive Accecs	:   <https://groups.google.com/g/relaxhub_movies>
