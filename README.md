@@ -1,10 +1,10 @@
 #### Important Links
 
-###### New Platfrom Link	:   <https://www.relaxhub.ga>
+###### New Platform Link	:   <https://www.relaxhub.ga>
 
-###### Old Platfrom Link	:   <https://relaxhub.ml>
+###### Old Platform Link	:   <https://relaxhub.ml>
 
-###### Backup Platfrom Link	:   <https://backup.relaxhub.ga>
+###### Backup Platform Link	:   <https://backup.relaxhub.ga>
 
 ###### Account Opening Guide	:   <https://youtu.be/s_ow33ldQGg>
 
