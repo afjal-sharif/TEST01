@@ -1,8 +1,8 @@
 #### Important Links
 
-###### New Platform Link	:   <https://www.relaxhub.ga>
+###### Platform Link	:   <https://www.relaxhub.ga>
 
-###### Old Platform Link	:   <https://relaxhub.ml>
+###### Platform Link	:   <https://relaxhub.ml>
 
 ###### Backup Platform Link	:   <https://backup.relaxhub.ga>
 
