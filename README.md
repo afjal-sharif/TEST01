@@ -12,4 +12,4 @@
 
 ###### For Drive Accecs Join This Group	:   <https://groups.google.com/g/relaxhub_movies>
 
-### Thank You !! - [*A6F1L S8AR9F*](https://nspbd.ga)
+### Thanks for using RELAX HUB !! - [*A6F1L S8AR9F*](https://nspbd.ga)
