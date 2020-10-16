@@ -2,13 +2,13 @@
 
 ##### Main Platform Link	:   <https://www.relaxhub.ga>
 
-#### ONLY MOVIES (250 TB+)     : <https://Movies.relaxhub.ga>
+#### ONLY MOVIES (250+ TB)     : <https://Movies.relaxhub.ga>
 
-#### ONLY TV Shows (300 TB+)   : <https://Tvshows.relaxhub.ga>
+#### ONLY TV Shows (300+ TB)   : <https://Tvshows.relaxhub.ga>
 
-#### ONLY Anime (150 TB+)     : <https://Anime.relaxhub.ga>
+#### ONLY Anime (150+ TB)     : <https://Anime.relaxhub.ga>
 
-#### Unsorted Files (500 TB+) : <https://ocean.relaxhub.ga>
+#### Unsorted Files (500+ TB) : <https://ocean.relaxhub.ga>
 
 ###### Announcement And Guides	:   <https://relaxhub.ml>
 
