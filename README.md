@@ -1,24 +1,28 @@
 #### Important Links
 
-##### Main Platform Link	:   <https://www.relaxhub.ga>
+##### Main Platform Link	    :   <https://www.relaxhub.ga>
 
-#### ONLY MOVIES (250+ TB)     : <https://Movies.relaxhub.ga>
+#### ONLY MOVIES (250+ TB)    : <https://Movies.relaxhub.ga>
 
-#### ONLY TV Shows (300+ TB)   : <https://Tvshows.relaxhub.ga>
+#### ONLY TV Shows (300+ TB)  : <https://Tvshows.relaxhub.ga>
 
 #### ONLY Anime (150+ TB)     : <https://Anime.relaxhub.ga>
 
 #### Unsorted Files (500+ TB) : <https://ocean.relaxhub.ga>
 
-###### Announcement And Guides	:   <https://relaxhub.ml>
+###### Announcement And Guides:   <https://relaxhub.ml>
 
-###### Backup Platform Link	:   <https://backup.relaxhub.ga>
+###### Backup Platform Link	  :   <https://backup.relaxhub.ga>
 
 ###### Account Opening Guide	:   <https://youtu.be/s_ow33ldQGg>
 
 #### Self Torrent Downloader	:   <https://dl.relaxhub.ga> (NEW)
 
-###### For Drive Accecs Join This Group	:   <https://groups.google.com/g/relaxhub_movies>
+#### Find Us On Telegram      :  <https://t.me/RELAX_HUB_BD>
+
+#### Find Us On Facebook      :  <https://fb.com/relaxhubusa>
+
+###### For More Join This Group	:   <https://groups.google.com/g/relaxhub_movies> 
 
 ### Thanks for using RELAX HUB !! -- [*A6J1L S81R9F*](https://m.me/relaxhubusa)
 
