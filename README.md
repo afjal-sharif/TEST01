@@ -1,6 +1,7 @@
-<center>
+ 
   
-#### Important Links
+<center> #### Important Links </center>
+
 
 #### Main Site Link	    :   <https://www.relaxhub.ga>
 
@@ -31,4 +32,3 @@
 ##*Disclaimer: RELAX HUB does not rip or host any files on it’s servers. All files or contents hosted on third party websites/servers. RELAX HUB doesn't accept the responsibility for contents hosted on third party websites/servers. Also RELAX HUB doesn't RIP/Pirate any file. We just collect links from other websites/servers. Nothing Else.*
 
 ![enter image description here](https://i.imgur.com/h2MTEaD.png)
-</center>
