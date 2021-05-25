@@ -1,6 +1,6 @@
 
  
-<p align="center"> #### Important Links </p>
+#### Important Links 
 
 #### Main Site Link	    :   <https://www.relaxhub.ga>
 
