@@ -1,6 +1,9 @@
 #### Important Links
 
-##### Main Platform Link	    :   <https://www.relaxhub.ga>
+
+##### Main Site Link	    :   <https://www.relaxhub.ga>
+
+##### Main Site 2 Link	    :   <https://BDflix.ml>
 
 #### ONLY MOVIES     : <https://Movies.relaxhub.ga>
 
@@ -10,7 +13,7 @@
 
 ###### Announcement And Guides:   <https://relaxhub.ml>
 
-###### Backup Platform Link	  :   <https://backup.relaxhub.ga>
+###### Backup Site Link	  :   <https://backup.relaxhub.ga>
 
 ###### Account Opening Guide	:   <https://youtu.be/s_ow33ldQGg>
 
